@@ -1,2 +1,4 @@
 # test-repo
-afiuswswswsw
+afiuswswswswsw
+sw
+sw
