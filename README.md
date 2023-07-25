@@ -3,6 +3,5 @@ afiuswsw
 sswsw
 swswsw
 
-swswswswswswswsw
-
+swswsws
 swsswswswswswswswwswsswswswsw
